@@ -1,5 +1,7 @@
 # Courses-for-further-study
-Don't stop learning
+--------------------------------------
+Read what you love until you love to read. Do what you love until you love to Do!
+Don't stop learning!
 
 https://stellar.mit.edu/
 
